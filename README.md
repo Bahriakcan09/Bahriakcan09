@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I’m @Bahriakcan09<br>I’m currently learning C#, Unity, Blender, Java.<br>How to reach me...<br>ak9@gmail.com<br> İG: @bn09
+Hi, I’m @Bahriakcan09<br>I’m currently learning C#, Unity, Blender, Java.<br>How to reach me...<br>akcan750bahri09@gmail.com<br> İG: @bahriakcan09
 
 
 ## 🌐 Socials:
